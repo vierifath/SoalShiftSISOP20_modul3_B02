@@ -12,8 +12,16 @@
 
 ## Soal 1
 
+Kembali ke : [Daftar Isi](#https://github.com/FXKevinK/SoalShiftSISOP20_modul3_B02#daftar-isi)
+
 ## Soal 2
+
+Kembali ke : [Daftar Isi](#https://github.com/FXKevinK/SoalShiftSISOP20_modul3_B02#daftar-isi)
 
 ## Soal 3
 
+Kembali ke : [Daftar Isi](#https://github.com/FXKevinK/SoalShiftSISOP20_modul3_B02#daftar-isi)
+
 ## Soal 4
+
+Kembali ke : [Daftar Isi](#https://github.com/FXKevinK/SoalShiftSISOP20_modul3_B02#daftar-isi)
